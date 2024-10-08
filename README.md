@@ -1,3 +1,3 @@
 ## Hi, I'm Juan! 
 
-![banner-juan-semprun](https://user-images.githubusercontent.com/33623712/169668946-045a5aa3-8225-4383-9119-7ba98686e95c.gif)
+![Banner LinkedIn  Twitter](https://github.com/user-attachments/assets/a94bb52f-b9f0-4dd9-8456-8c232a1fa20e)
